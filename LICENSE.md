@@ -1,4 +1,4 @@
-# 
+# Instantâneo CCleaner modelos para Mac OS | Avançado CCleaner modelos para PC Windows. Com exportacao de dados e funcionalidade de busca — otimizado para máximo desempenho em cada plataforma.
 
 
 
